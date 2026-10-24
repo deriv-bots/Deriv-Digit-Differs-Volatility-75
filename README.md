@@ -23,46 +23,7 @@ Step 6 : Start Bot and Make money \
 Step 7 : Monitor the bot's performance and make adjustments as needed or contact me in case of difficulties i will help.
 
 
-![AI-Fintech](https://user-images.githubusercontent.com/57016982/170944162-b0775598-289a-49a3-85c6-2c0af545741c.jpg)
-
-<p align="center">
-  <a href="https://wa.me/254747204803"><img src="https://img.shields.io/badge/WhatsApp-Chat-25D366?logo=whatsapp&logoColor=white" alt="WhatsApp"></a>
-  <a href="https://t.me/Deriv_Pro"><img src="https://img.shields.io/badge/Telegram-Message-26A5E4?logo=telegram&logoColor=white" alt="Telegram"></a>
-</p>
-
-## 💬 My Contacts & Mentorship Inquiries
-
-Want premium bots or 1-on-1 guidance? Reach out:
-
-- 📱 WhatsApp: [Chat Now](https://wa.me/254747204803)  
-- 💬 Telegram: [Deriv Pro](https://t.me/Deriv_Pro)  
-- 📧 Email: monarchtrades@outlook.com 
-
 ---
-
-## 💸 Premium Bot Combo Offer
-
-There are over 40+ premium bots and strategies available  plus lifetime access to future releases. Test, compare, and find your perfect fit.
-
-- Combo deal includes all bots + future updates or buy bots individually
-- Contact me for pricing:
-- 📱 WhatsApp: [Chat Now](https://wa.me/254747204803)  
-- 💬 Telegram: [@Deriv_Pro](https://t.me/Deriv_Pro)  
-- 📧 Email: monarchtrades@outlook.com 
-
----
-
-## 🧠 Pro Tips
-
-- Use stop-loss and proper risk management  
-- Always test bots on demo before going live  
-- Track performance and tweak strategies  
-- Never rely solely on automation — stay informed  
-- Past results ≠ future guarantees
-
----
-
-## 💎 Join the Inner Circle---
 
 ![AI-Fintech](https://user-images.githubusercontent.com/57016982/170944162-b0775598-289a-49a3-85c6-2c0af545741c.jpg)
 
